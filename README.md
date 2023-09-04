@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AFK2K
+- 👀 I’m interested in Coding.
+- 🌱 I’m currently learning how to code using a discord.
+- 📫 How to reach me Email: haruaniko@gmail.com or discord! discord: graffitihanz, display: RAIIN
